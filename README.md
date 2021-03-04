@@ -1,2 +1,2 @@
 ## Bikie
-Now rent a bike even for your simple works --
+Now rent a bike even for your simple work --
